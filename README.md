@@ -1,3 +1,2 @@
-# clase_numpy
-
-## carpeta de apuntes de Carlos y Fabricio
+# CERTIFICADOS AVALADOS EN CONOCIMIENTO.
+## En actividades y en Experiencia.
